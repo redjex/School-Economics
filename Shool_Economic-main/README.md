@@ -1,1 +1,0 @@
-# Shool_Economic

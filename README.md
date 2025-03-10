@@ -1,1 +1,1 @@
-# School-Economics
+# Shool_Economic
